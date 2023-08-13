@@ -1,1 +1,0 @@
-HI，Ayase Haruka！
